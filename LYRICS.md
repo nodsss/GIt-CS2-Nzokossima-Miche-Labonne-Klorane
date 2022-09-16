@@ -15,7 +15,11 @@ L'École du micro d'argent
 Assis en tailleur, voilà des heures queje médite\
 Sur ma montagne et je n'arrive pas à faire le vide\
 Je focalisesur le diaphragme, j'augmente mon énergie
-
+Réveille la bête qui dans mon âme est tapie\
+Je viens de terminer ma préparation mentale_
+Ils vont goûter à l'incomparable style du Serval\
+Le souffle des quatre vents décuple ma puissance\
+De longs mois de travail ont exacerbémes sens
 
 ## Akhenaton
 
