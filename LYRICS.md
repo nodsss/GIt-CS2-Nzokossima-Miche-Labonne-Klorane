@@ -21,6 +21,19 @@ Ils vont goûter à l'incomparable style du Serval\
 Le souffle des quatre vents décuple ma puissance\
 De longs mois de travail ont exacerbémes sens
 
+## CHOEUR
+
+L'École du micro d'argent\
+L'École du micro d'argent\
+Je représente\
+L'École du micro d'argent\
+L'École du micro d'argentJe représente\
+L'École du micro d'argentL'École du micro d'argent\
+Je représente\
+L'École du micro d'argentL'École du micro d'argent
+
+
+
 ## Akhenaton
 
 Mon sabre scintille, je médite accroupi sous les branches d'un saule\
