@@ -48,4 +48,13 @@ Pleure, je défends l'honneur de mon école, fils\
 Le troisième œil scrute le terrain, la tactique\
 À pratiquer, pour balayer l'ennemi, statique\
 Physiquement, les déplacements furtifs\
-De l'essence de mon esprit élabore les bases de ma stratégie
+De l'essence de mon esprit élabore les bases de ma stratégie\
+Donc je me dresse dans des cliquetis, bardé d'armes\
+J'ai une armée entière sous le charme\
+Prête à mourir, à lagloire de mon étendard\
+J'ai rassemblé la clique des valeureux guerriers barbares\
+Dare-dare j'ai envoyé paître les lettres\
+Pourchassé les traîtres, selon l'enseignement de mes maîtres\
+Sansrelâche, je crache des cendres\
+Et poursuivrai les massacres jusqu'àce que le nom d'AKH soit légende\
+Car le soldat, guerrier alpha est adroit
