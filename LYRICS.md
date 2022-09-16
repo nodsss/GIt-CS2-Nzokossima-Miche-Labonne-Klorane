@@ -27,6 +27,11 @@ Je tire les dernières forces de la nature mère nourricière\
 Je mène les troupes au combat pour défaire\
 Les guerriers en contre-plaqué de l'école du micro en bois\
 Notre bannière flotte au sommet du Tsunami
+Et lance l'assaut là, sur l'école du micro en bois\
+La bataille a débuté, tiensCe coup vient d'un expertà la guerre\
+Vaillant praticien des arts martiens\
+Délégué pour mettre un terme à ces horreurs\
+Tel est mon labeur, tu sais de qui je défends l'honneur
 
 ## CHOEUR
 
