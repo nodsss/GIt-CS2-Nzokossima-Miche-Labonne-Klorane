@@ -62,4 +62,10 @@ Dare-dare j'ai envoyé paître les lettres\
 Pourchassé les traîtres, selon l'enseignement de mes maîtres\
 Sansrelâche, je crache des cendres\
 Et poursuivrai les massacres jusqu'àce que le nom d'AKH soit légende\
-Car le soldat, guerrier alpha est adroit
+Car le soldat, guerrier alpha est adroit\
+Et lance l'assaut là, sur l'école du micro en bois\
+La bataille a débuté, tiensCe coup vient d'un expert à la guerre\
+Vaillant praticien des arts martiens\
+Délégué pour mettre un terme à ces horreurs\
+Tel est mon labeur, tu sais de qui je défends l'honneur
+
