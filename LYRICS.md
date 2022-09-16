@@ -1,4 +1,4 @@
-# L’École du micro d’argent
+# TITRE: L’Ecole du micro d’argent
 
 ## CHOEUR
 
@@ -68,4 +68,17 @@ La bataille a débuté, tiensCe coup vient d'un expert à la guerre\
 Vaillant praticien des arts martiens\
 Délégué pour mettre un terme à ces horreurs\
 Tel est mon labeur, tu sais de qui je défends l'honneur
+
+## CHOEUR
+
+L'École du micro d'argent\
+L'École du micro d'argent\
+Je représente\
+L'École du micro d'argent\
+L'École du micro d'argent\
+Je représente\
+L'École du micro d'argent\
+L'École du micro d'argent\
+Je représente\
+L'École du micro d'argentL'École du micro d'argent
 
